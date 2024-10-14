@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @rubenap18
+- 👀 I’m interested in learning Software Development.
+- 🌱 I’m currently learning Web Development.
+- 💞️ I’m looking to collaborate in the future, until I learn more about this world.
+- 📫 How to reach me ... nothing yet
+- 😄 Pronouns: he
+- ⚡ Fun fact: idk dude!
