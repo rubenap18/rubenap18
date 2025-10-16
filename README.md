@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @rubenap18
-- 👀 I’m interested in learning Software Development.
-- 🌱 I’m currently learning Web Development.
-- 💞️ I’m looking to collaborate in the future, until I learn more about this world.
-- 📫 How to reach me ... nothing yet
-- 😄 Pronouns: he
-- ⚡ Fun fact: idk dude!
+- QUE ROLLO!!
+- I'M RUBEN AGUILAR
+- I'M CURRENTLY STUDYING SOFTFWARE ENGINEERING AT 'LA PODEROSISIMA UTT' IN TIJUANA, MEXICO. 
+- I EXTREMELY LOVE JAVA, BUT I'M STARTING TO LOVE PYTHON AS WELL.
+- I'M LINUX USER, AND LIKE FEDORA AND ZORIN OS, MY FRIENDS CALL IT 'PEDORRA'.
+- IDK, THE ONLY THING I WANT IS NOT TO EARN THE MINIMUN SALARY.
+- THIS GUY DON'T LIKE MORENA.
